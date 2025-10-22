@@ -1,30 +1,18 @@
-# Hormone & Weight Loss Clinic – TRT Treatment Experts
+# Hormone & Weight Loss Clinic
 
-Welcome to our **Hormone and Weight Loss Clinic**, a trusted center for **TRT Treatment**, hormone balance therapy, and personalized weight management solutions.
+Welcome to our **Hormone and Weight Loss Clinic** website — a trusted center for hormone therapy, TRT (Testosterone Replacement Therapy), and weight management programs.
 
-If you’re looking for a reliable  
-[**weight loss clinic**](https://www.google.com/maps?cid=2241516199429680689),  
-[**hormone clinic**](https://www.google.com/maps?cid=2241516199429680689), or  
-[**TRT treatment**](https://www.google.com/maps?cid=2241516199429680689)  
-— we are here to help you reach your health goals safely and effectively.
+## About
+We provide safe and effective treatments designed to restore energy, balance hormones, and support sustainable weight loss for men and women.
 
----
-
-## 🌟 Our Specialties
-- Hormone Replacement Therapy (HRT)
+## Services
 - Testosterone Replacement Therapy (TRT)
-- Weight Loss & Nutrition Guidance
-- Lifestyle & Energy Optimization
+- Hormone Replacement & Balancing (HRT)
+- Weight Management Programs
+- Personalized Nutrition & Lifestyle Support
 
----
+## Visit Us
+Find our clinic on Google Maps:  
+👉 [Hormone & Weight Loss Clinic Location](https://www.google.com/maps?cid=2241516199429680689)
 
-## 📍 Find Us
-Visit us on Google Maps to see our clinic location and directions:  
-👉 [**View Clinic Location**](https://www.google.com/maps?cid=2241516199429680689)
-
----
-
-## 💬 Why Choose Us?
-We specialize in balancing hormones and optimizing wellness for both men and women. Our experienced medical team focuses on personalized care, natural therapies, and long-term results.
-
-Stay healthy, stay confident — start your transformation today.
+© 2025 Hormone & Weight Loss Clinic
